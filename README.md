@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on creative tech projects.
 - 📫 How to reach me: [hrishikeshsardar65@gmail.com]
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I create music without any instruments, just my voice and creativity!
+
